@@ -13,7 +13,7 @@ https://file.io/xruhnnXmCgyu - JAR CRACKED
 
 https://www.mediafire.com/file/swrb5biqgbyyqd8/Rise-Compressed.jar/file - BACK UP
 
-REPALCE THE CRACKED JAR WITH THE JAR IN THE LAUNCHER THAN LAUNCH
+RENAME THE CRACKED JAR TO "RiseCompressed.jar" THEN REPLACE IT WITH THE JAR INSIDE THE FILES FOLDER
 
 # reason for crack
 no safe one and trusted so heres mine and if theres issues dm me i patched the aura check and networking in 10 minutes and i got bored so also a reason my nigga!
