@@ -7,7 +7,7 @@ ube -> cracking
 vale -> providing files
 
 # Download
-https://mega.nz/file/LMYzUQZK#pk8UHMMXtaXLuM15I-93BgjQQGC0FQLvwyLpDVDh5hc - LAUNCHER
+https://www.mediafire.com/file/pcx1ccgfg63s1aw/Rise+v6+New.7z/file - NEW LAUNCHER
 
 https://easyupload.io/fnco18 - jar
 
