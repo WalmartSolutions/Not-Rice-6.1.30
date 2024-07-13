@@ -9,7 +9,7 @@ vale -> providing files
 # Download
 https://mega.nz/file/LMYzUQZK#pk8UHMMXtaXLuM15I-93BgjQQGC0FQLvwyLpDVDh5hc - LAUNCHER
 
-https://www.mediafire.com/file/swrb5biqgbyyqd8/Rise-Compressed.jar/file - JAR CRACKED
+https://easyupload.io/fnco18 - jar
 
 RENAME THE CRACKED JAR TO "RiseCompressed.jar" THEN REPLACE IT WITH THE JAR INSIDE THE FILES FOLDER THEN LAUNCH THE BAT FILE
 
