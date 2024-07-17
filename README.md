@@ -7,11 +7,12 @@ ube -> cracking
 vale -> providing files
 
 # Download
+
+# **RENAME THE CRACKED JAR TO "RiseCompressed.jar" THEN REPLACE IT WITH THE JAR INSIDE THE FILES FOLDER THEN LAUNCH THE BAT FILE DOWNLOAD THE CRACKED JAR AT https://easyupload.io/fnco18 OR THE LINK BELOW THE LAUNCHER**
 https://www.mediafire.com/file/pcx1ccgfg63s1aw/Rise+v6+New.7z/file - NEW LAUNCHER
 
 https://easyupload.io/fnco18 - jar
 
-RENAME THE CRACKED JAR TO "RiseCompressed.jar" THEN REPLACE IT WITH THE JAR INSIDE THE FILES FOLDER THEN LAUNCH THE BAT FILE
 
 # reason for crack
 no safe one and trusted so heres mine and if theres issues dm me i patched the aura check and networking in 10 minutes and i got bored so also a reason my nigga!
