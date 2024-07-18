@@ -13,6 +13,9 @@ https://www.mediafire.com/file/pcx1ccgfg63s1aw/Rise+v6+New.7z/file - NEW LAUNCHE
 
 https://easyupload.io/fnco18 - jar
 
+# config system
+
+alan brokey it 
 
 # reason for crack
 no safe one and trusted so heres mine and if theres issues dm me i patched the aura check and networking in 10 minutes and i got bored so also a reason my nigga!
