@@ -18,8 +18,7 @@ https://easyupload.io/fnco18 - jar
 alan brokey it 
 
 # reason for crack
-no safe one and trusted so heres mine and if theres issues dm me i patched the aura check and networking in 10 minutes and i got bored so also a reason my nigga!
-
+no safe one and trusted so heres mine and if theres issues dm me i patched the aura check and networking in 10 minutes and i got bored
 # gui -> RShift (right shift)
 
 ![image](https://github.com/user-attachments/assets/e5cad224-486a-448e-abec-4c7d671c0e64)
